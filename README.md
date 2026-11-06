@@ -24,6 +24,10 @@
 
 ≻───── ⋆✩⋆ ─────≺
 
+<img width="984" height="675" alt="image" src="https://github.com/user-attachments/assets/380124ea-9967-460d-91c8-28b41fe0e792" />
+
+≻───── ⋆✩⋆ ─────≺
+
 [panty C+H:](https://github.com/falcon-ft) heh, nerd ill show you how to do it H3Y ITS ME, V3RITY! wait, whats happening to me? i- Y0UR P3RSON4L HELPER FRIEND 4SK M3- wait, no! im turning into-
 
 [kris (me/persona) C+H:](https://github.com/falcon-ft) tampons and pads are for geeks
