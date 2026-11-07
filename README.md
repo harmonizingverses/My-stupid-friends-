@@ -64,5 +64,7 @@
 
 [Blow us all away!](https://github.com/CheddarChez) My names Phillip I am a poet and I wrote this poem just to show it and I just turned 9 u can rhyme rhymes but u can’t rhyme mine (WHAT?) I practice French and play piano with my mother (uhm) I have a sister but I want a lil brother (okay..) my daddy’s trying to start americas bank 1 2 3 4 5!!!!!!!!
 
+[Blow us all away!](https://github.com/CheddarChez) Im blowing u away 🌬🌬 just like papa said I would 🌬🌬🌬🌬🌬🌬
+
 <img width="1198" height="338" alt="image" src="https://github.com/user-attachments/assets/9574e1d9-c420-4e11-8989-30b18aa4ea0b" />
 
