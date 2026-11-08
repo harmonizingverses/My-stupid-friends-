@@ -52,6 +52,18 @@
 
 ≻───── ⋆✩⋆ ─────≺
 
+<img width="976" height="896" alt="image" src="https://github.com/user-attachments/assets/ad6e8a85-d4e2-4a55-84de-fa0c9744e2ce" />
+
+≻───── ⋆✩⋆ ─────≺
+
+<img width="1043" height="381" alt="image" src="https://github.com/user-attachments/assets/5f0030f3-e4b5-4dcb-bf9e-2018d369c265" />
+
+≻───── ⋆✩⋆ ─────≺
+
+<img width="1019" height="201" alt="image" src="https://github.com/user-attachments/assets/4d8f36dc-c337-49bc-ad7c-8333fcde5ba1" />
+
+≻───── ⋆✩⋆ ─────≺
+
 [panty C+H:](https://github.com/falcon-ft) heh, nerd ill show you how to do it H3Y ITS ME, V3RITY! wait, whats happening to me? i- Y0UR P3RSON4L HELPER FRIEND 4SK M3- wait, no! im turning into-
 
 [kris (me/persona) C+H:](https://github.com/falcon-ft) tampons and pads are for geeks
@@ -71,6 +83,9 @@
 [Blow us all away!](https://github.com/CheddarChez) Im blowing u away 🌬🌬 just like papa said I would 🌬🌬🌬🌬🌬🌬
 
 [Leadia](https://github.com/DoctorFunkbeat) thinks: I'd recommwnd u leave before i call animal control
+
+[Airi Momoi ,, dniuid](https://github.com/BloomingCrown) whispers: I’m sick so I’ll be missing Angie
+
 
 <img width="1198" height="338" alt="image" src="https://github.com/user-attachments/assets/9574e1d9-c420-4e11-8989-30b18aa4ea0b" />
 
