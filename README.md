@@ -86,14 +86,15 @@
 
 [Akito](https://github.com/DoctorFunkbeat) thinks: Bcz uhh in this au funkbeat ummm cracks akito ummmm
 
-[Blow us all away!](https://github.com/CheddarChez) My names Phillip I am a poet and I wrote this poem just to show it and I just turned 9 u can rhyme rhymes but u can’t rhyme mine (WHAT?) I practice French and play piano with my mother (uhm) I have a sister but I want a lil brother (okay..) my daddy’s trying to start americas bank 1 2 3 4 5!!!!!!!!
+[Blow us all away!:](https://github.com/CheddarChez) My names Phillip I am a poet and I wrote this poem just to show it and I just turned 9 u can rhyme rhymes but u can’t rhyme mine (WHAT?) I practice French and play piano with my mother (uhm) I have a sister but I want a lil brother (okay..) my daddy’s trying to start americas bank 1 2 3 4 5!!!!!!!!
 
-[Blow us all away!](https://github.com/CheddarChez) Im blowing u away 🌬🌬 just like papa said I would 🌬🌬🌬🌬🌬🌬
+[Blow us all away!:](https://github.com/CheddarChez) Im blowing u away 🌬🌬 just like papa said I would 🌬🌬🌬🌬🌬🌬
 
 [Leadia](https://github.com/DoctorFunkbeat) thinks: I'd recommwnd u leave before i call animal control
 
-[Airi Momoi ,, dniuid](https://github.com/BloomingCrown) whispers: I’m sick so I’ll be missing Angie
+[Airi Momoi ,, dniuid](https://github.com/BloomingCrown) whispers: yesterday I munched on a spider
 
+[panty C+H:](http://github.com/falcon-ft) im pregnant verity dont be scared of me
 
 <img width="1198" height="338" alt="image" src="https://github.com/user-attachments/assets/9574e1d9-c420-4e11-8989-30b18aa4ea0b" />
 
