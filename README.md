@@ -72,6 +72,10 @@
 
 ≻───── ⋆✩⋆ ─────≺
 
+<img width="800" height="745" alt="image" src="https://github.com/user-attachments/assets/48fa1463-0eec-422c-baa6-502eeb34f3a2" />
+
+≻───── ⋆✩⋆ ─────≺
+
 [panty C+H:](https://github.com/falcon-ft) heh, nerd ill show you how to do it H3Y ITS ME, V3RITY! wait, whats happening to me? i- Y0UR P3RSON4L HELPER FRIEND 4SK M3- wait, no! im turning into-
 
 [kris (me/persona) C+H:](https://github.com/falcon-ft) tampons and pads are for geeks
@@ -95,6 +99,8 @@
 [Airi Momoi ,, dniuid](https://github.com/BloomingCrown) whispers: yesterday I munched on a spider
 
 [panty C+H:](http://github.com/falcon-ft) im pregnant verity dont be scared of me
+
+[kris (me/persona) C+H:](http://github.com/falcon-ft) im drawing asriel and he looks like a pregnant mom of three children
 
 <img width="1198" height="338" alt="image" src="https://github.com/user-attachments/assets/9574e1d9-c420-4e11-8989-30b18aa4ea0b" />
 
