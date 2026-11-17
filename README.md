@@ -76,6 +76,10 @@
 
 ≻───── ⋆✩⋆ ─────≺
 
+<img width="654" height="696" alt="image" src="https://github.com/user-attachments/assets/6b9324b9-d4e2-4b1a-a7df-01edd6d264a4" />
+
+≻───── ⋆✩⋆ ─────≺
+
 [panty C+H:](https://github.com/falcon-ft) heh, nerd ill show you how to do it H3Y ITS ME, V3RITY! wait, whats happening to me? i- Y0UR P3RSON4L HELPER FRIEND 4SK M3- wait, no! im turning into-
 
 [kris (me/persona) C+H:](https://github.com/falcon-ft) tampons and pads are for geeks
@@ -101,6 +105,8 @@
 [panty C+H:](http://github.com/falcon-ft) im pregnant verity dont be scared of me
 
 [kris (me/persona) C+H:](http://github.com/falcon-ft) im drawing asriel and he looks like a pregnant mom of three children
+
+[Low effort oc ,, iwc:](https://github.com/BloomingCrown) Like Stalin eyes
 
 <img width="1198" height="338" alt="image" src="https://github.com/user-attachments/assets/9574e1d9-c420-4e11-8989-30b18aa4ea0b" />
 
