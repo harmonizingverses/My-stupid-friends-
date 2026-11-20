@@ -2,6 +2,7 @@
 
 <img width="736" height="157" alt="image" src="https://github.com/user-attachments/assets/179f5cba-c793-4f3d-ad84-762569ad71d1" />
 
+≻───── ⋆✩⋆ ─────≺
 
 <img width="867" height="830" alt="image" src="https://github.com/user-attachments/assets/6a8b054e-fc9f-4cef-8937-9637e76a8291" />
 
@@ -80,6 +81,23 @@
 
 ≻───── ⋆✩⋆ ─────≺
 
+<img width="705" height="620" alt="image" src="https://github.com/user-attachments/assets/4e70d9ec-6f9e-4d61-8ef9-1d02d7590c77" />
+
+
+≻───── ⋆✩⋆ ─────≺
+
+<img width="1174" height="522" alt="image" src="https://github.com/user-attachments/assets/56d54d04-0a45-4210-83b0-4a53be3d5acc" />
+
+≻───── ⋆✩⋆ ─────≺
+
+<img width="1043" height="523" alt="image" src="https://github.com/user-attachments/assets/f13649ed-5532-452f-9db3-72afe9661264" />
+
+≻───── ⋆✩⋆ ─────≺
+
+<img width="575" height="337" alt="image" src="https://github.com/user-attachments/assets/3ed900b5-be55-4808-a512-a84a45e6dac6" />
+
+≻───── ⋆✩⋆ ─────≺
+
 [panty C+H:](https://github.com/falcon-ft) heh, nerd ill show you how to do it H3Y ITS ME, V3RITY! wait, whats happening to me? i- Y0UR P3RSON4L HELPER FRIEND 4SK M3- wait, no! im turning into-
 
 [kris (me/persona) C+H:](https://github.com/falcon-ft) tampons and pads are for geeks
@@ -107,6 +125,8 @@
 [kris (me/persona) C+H:](http://github.com/falcon-ft) im drawing asriel and he looks like a pregnant mom of three children
 
 [Low effort oc ,, iwc:](https://github.com/BloomingCrown) Like Stalin eyes
+
+[mr.ant tenna C+H:](https://github.com/falcon-ft) ok fine im gonna unleash my alpha side fr this time
 
 <img width="1198" height="338" alt="image" src="https://github.com/user-attachments/assets/9574e1d9-c420-4e11-8989-30b18aa4ea0b" />
 
