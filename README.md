@@ -98,6 +98,18 @@
 
 ≻───── ⋆✩⋆ ─────≺
 
+<img width="690" height="594" alt="image" src="https://github.com/user-attachments/assets/0ce4123f-6be7-4874-9657-ca9da5f20b2c" />
+
+≻───── ⋆✩⋆ ─────≺
+
+<img width="446" height="377" alt="image" src="https://github.com/user-attachments/assets/27323087-5dd1-428a-a8ba-41b4c6ac8164" />
+
+≻───── ⋆✩⋆ ─────≺
+
+<img width="712" height="702" alt="image" src="https://github.com/user-attachments/assets/44fcfdde-7fcb-4f24-ad10-b72054124bbd" />
+
+≻───── ⋆✩⋆ ─────≺
+
 [panty C+H:](https://github.com/falcon-ft) heh, nerd ill show you how to do it H3Y ITS ME, V3RITY! wait, whats happening to me? i- Y0UR P3RSON4L HELPER FRIEND 4SK M3- wait, no! im turning into-
 
 [kris (me/persona) C+H:](https://github.com/falcon-ft) tampons and pads are for geeks
